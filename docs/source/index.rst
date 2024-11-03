@@ -997,9 +997,3 @@ https://sites.google.com/view/may88rodeo1/home
 https://173202302ab081ba9b6a332fbf.doorkeeper.jp/
 https://glose.com/u/May88Rodeo
 https://www.quora.com/profile/May88-Rodeo
-https://rant.li/linkmay88rodeo/may88-link-vao-nha-cai-may88-moi-nhat-2024-link-dang-nhap-moi-nhat
-https://postheaven.net/kcg7dl8u1i
-https://telegra.ph/May88--Link-vao-nha-cai-May88-moi-nhat-2024--Link-dang-nhap-moi-nhat-10-04
-https://personaljournal.ca/linkmay88rodeo/may88-link-vao-nha-cai-may88-moi-nhat-2024-link-dang-nhap-moi-nhat
-https://telescope.ac/linkmay88rodeo/kgow1y09qyo01hnjip9k76
-https://hackmd.okfn.de/s/H10FBIa0R
